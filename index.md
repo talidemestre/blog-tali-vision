@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Not sure about this nonsense. 
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+I might just make some hellish raw HTML yet.
