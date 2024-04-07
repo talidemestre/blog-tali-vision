@@ -1,17 +1,15 @@
-# Kayaking in Kangaroo Valley
-Events took place beginning 29/3/24.
-
-After meeting up in Kangaroo Valley, driving to Tallowa Dam, and sorting through the mountain of 'just-in case' gear we all brought (for me, a wetsuit, for others, 9 t-shirts) it was time to set sail. We would take two inflatable boats, fairly dividing the gear by putting none in the tandem and all of it in the solo kayak.
+# Easter Kayaking in Kangaroo Valley
+After meeting up in Kangaroo Valley, driving to Tallowa Dam, and sorting through the mountain of 'just-in case' gear we brought (for me, a wetsuit, for others, 9 t-shirts) it was time to set sail. This was all piled into two inflatable boats, fairly dividing the gear by putting none in the tandem and all of it in the solo kayak.
 
 We set off in high spirits at approximately way-too-late on Friday night. 
 
 ![alt text](/images/kayak-kangaroovalley/image.png)
 *Carrying the solo boat down from the car park.*
 
-I don't want to throw anyone under the bus, but we immediately acted on the faulty intel that there was a campground "just across the river". With no other options we set up camp on an incline, inflatable mats protected from rough ground by a pre-used space blanket. Resigned to our fate, we cooked a respectable plate of nachos.
+I don't want to throw anyone under the bus, but we immediately acted on faulty intel that there was a campground "just across the river". With no other options we set up camp on an incline, inflatable mats protected from rough ground by a pre-used space blanket. Resigned to our fate, we cooked a respectable plate of nachos.
 
 
-The next day we pushed west, upstreaming the Shoalhaven, and witnessed some of the prettiest scenes I've ever spotted in south-east NSW. On either side of the river was dense vegetation all but tumbling into the water, above this were sheer rock-faces clearly not to be climbed by us on this weekend.
+The next day we pushed west, upstreaming the Shoalhaven, and witnessed some of the prettiest scenes in south-east NSW. On either side of the river was dense vegetation all but tumbling into the water, above this were sheer rock-faces clearly not to be climbed by us on this weekend.
 
 ![alt text](/images/kayak-kangaroovalley/image-2.png)
 *Views typical of this part of the Shoalhaven River*
