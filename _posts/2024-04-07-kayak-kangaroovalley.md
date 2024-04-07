@@ -1,4 +1,4 @@
-
+# Kayaking in Kangaroo Valley
 Events took place beginning 29/3/24.
 
 After meeting up in Kangaroo Valley, driving to Tallowa Dam, and sorting through the mountain of 'just-in case' gear we all brought (for me, a wetsuit, for others, 9 t-shirts) it was time to set sail. We would take two inflatable boats, fairly dividing the gear by putting none in the tandem and all of it in the solo kayak.
