@@ -29,4 +29,4 @@ We had another meal in Myrtleford, stopping to eat burgers and witness some of t
 
 The next day we woke up, had the world famous Everton milkshake, and grinded our way back up the climb into Beechworth. We finished our trip back where we started, eating pumpkin pies from the pie shop in Yak.
 
-And that was how we successfully yakked and back.
+This whole trip felt very much like what cycling in Europe was like. Would highly recommend this to others and I think I'll definitely be back.
